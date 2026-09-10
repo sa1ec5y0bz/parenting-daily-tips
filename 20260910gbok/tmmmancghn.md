@@ -150,21 +150,21 @@ PGT-A（每枚）400-500按实际活检数计费
 
 ## 相关阅读
 
-- [相关笔记](https://github.com/sa1ec5y0bz/family-health-notes/blob/main/20260910wvoa/acxsgnegje.md)
-- [相关笔记](https://github.com/uo8lrun64a/family-health-notes/blob/main/20260910biha/rjfdsdwhvu.md)
-- [相关笔记](https://github.com/uo8lrun64a/mommy-baby-notes/blob/main/20260910xnzp/ygzdavuyhj.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/mommy-baby-notes/blob/main/20260910wyda/cslnyftbem.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/parenting-daily-tips/blob/main/20260910emah/ibyvudpwjx.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/baby-care-journal/blob/main/20260910mqdw/nfpaehzait.md)
-- [相关笔记](https://github.com/uo8lrun64a/baby-care-journal/blob/main/20260910eavp/llsrdkjrmx.md)
+- [美国第三代试管婴儿全攻略：7大避坑法＋高成功率秘笈](https://github.com/sa1ec5y0bz/family-health-notes/blob/main/20260910wvoa/acxsgnegje.md)
+- [赴美做第三代试管婴儿必看：5大避坑秘诀+高成功率解析](https://github.com/uo8lrun64a/family-health-notes/blob/main/20260910biha/rjfdsdwhvu.md)
+- [手把手教你赴美做第三代试管婴儿：家庭必看全流程攻略](https://github.com/uo8lrun64a/mommy-baby-notes/blob/main/20260910xnzp/ygzdavuyhj.md)
+- [美国第三代试管婴儿内幕揭秘：你必须避开的6大坑](https://github.com/sa1ec5y0bz/mommy-baby-notes/blob/main/20260910wyda/cslnyftbem.md)
+- [美国第三代试管婴儿全流程攻略：7大关键步骤助你海外怀孕无忧](https://github.com/sa1ec5y0bz/parenting-daily-tips/blob/main/20260910emah/ibyvudpwjx.md)
+- [赴美第三代试管婴儿避坑指南：5个关键环节千万别踩雷](https://github.com/sa1ec5y0bz/baby-care-journal/blob/main/20260910mqdw/nfpaehzait.md)
+- [美国第三代试管婴儿5大核心流程＋避坑秘籍，助你轻松圆梦](https://github.com/uo8lrun64a/baby-care-journal/blob/main/20260910eavp/llsrdkjrmx.md)
 
 ## 推荐站点
 
-- [详情点击](https://www.danqiushen.com/157.html)
-- [推荐阅读](https://www.danqiushen.com/124.html)
-- [相关资讯](https://www.danqiushen.com/66.html)
-- [点击查看](https://www.wuzhenzhi.cn/81.html)
-- [查看详情](https://www.wuzhenzhi.cn/9.html)
-- [相关资讯](https://www.wuzhenzhi.cn/41.html)
+- [试管移植后可以吃汉鸭、乡巴老鸭吗？孕妇饮食安全一次讲清](https://www.wuzhenzhi.cn/55.html)
+- [深圳市妇幼保健院试管婴儿成功案例与播种网经验分享：供卵试管男孩几率科普解读](https://www.wuzhenzhi.cn/56.html)
+- [武汉陆军总医院试管成功率多少？影响试管婴儿成功率的因素全解析](https://www.wuzhenzhi.cn/57.html)
+- [山东供卵自怀成功率多少？卵子捐赠试管婴儿科普指南](https://www.wuzhenzhi.cn/58.html)
+- [试管婴儿移植前吃辅酶Q10好吗有影响吗？移植前是否需要补充详解](https://www.wuzhenzhi.cn/59.html)
+- [国内三代试管成功率最高的机构怎么看？科学解读PGT成功率与选择标准](https://www.wuzhenzhi.cn/60.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
