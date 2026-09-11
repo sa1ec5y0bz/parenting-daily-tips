@@ -532,12 +532,18 @@ A：INCINTA 接受 Visa/Master 分期，最高 24 期，手续费 4.5%。
 
 ## 推荐站点
 
-- [供卵价格需要多少钱——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/14.html)
-- [试管双胞胎成功率高吗？国内咨询与美国试管预约成功率全解析](https://www.wuzhenzhi.cn/140.html)
-- [众安试管婴儿保险价格表解读：试管婴儿保险多少钱、医保报销一次怎么算](https://www.wuzhenzhi.cn/143.html)
-- [武汉市人民医院试管费用多少钱？试管婴儿费用构成与报销详解](https://www.wuzhenzhi.cn/144.html)
-- [试管婴儿成功分享经验的案例有哪些？真实案例与经验视频解读](https://www.wuzhenzhi.cn/145.html)
-- [广州省二人民医院试管成功率多少？显微取精广医三院成功率科普解读](https://www.wuzhenzhi.cn/146.html)
-- [北医三院三代试管费用高吗？费用构成与影响因素详细解读](https://www.wuzhenzhi.cn/147.html)
+- [['https://www.luruihang.com/2189.html', '试管代怀生子：试管移植第3天症状']](https://www.luruihang.com/2189.html)
+- [['https://www.skiguo.cn/20250927-179.html', '试管供卵排名-27岁绝经还能恢复吗']](https://www.skiguo.cn/20250927-179.html)
+- [['https://www.anyhdlyb.cn/3426579986379.html', '促排卵要几个卵泡正常吗，促排几个卵泡最适合私人供卵代怀公司']](https://www.anyhdlyb.cn/3426579986379.html)
+- [['https://www.ppmaas.com/guoneishiguanjigou/479.html', '国内供卵多少钱一次_哪里做试管包男孩多,妊娠线和妊娠纹可别搞混']](https://www.ppmaas.com/guoneishiguanjigou/479.html)
+- [['https://www.ewdboe.cn/510135462328.html', '湖北第三代代生医院排名：助孕省钱攻略2026版']](https://www.ewdboe.cn/510135462328.html)
+- [['https://www.cxit.com.cn/daiyunxinwen/14199.html', '做试管费用_试管费用明细,粤西试管婴儿医院供卵,试管婴儿权威医院']](https://www.cxit.com.cn/daiyunxinwen/14199.html)
+- [['https://www.xmxinyhwzhs.cn/25062101046180.html', '宁夏比较好的生殖医院排名榜揭晓，附生双胎医院排名,助孕公司']](https://www.xmxinyhwzhs.cn/25062101046180.html)
+- [['https://www.syldezdhkj.cn/31371045112700.html', '广西试管供卵机构医院排名重新洗牌，更新2026广西供卵试管中心排名 ,试管代生费用']](https://www.syldezdhkj.cn/31371045112700.html)
+- [['https://www.phetpalace.com/460.html', '代孕套餐优惠：取卵后移植鲜胚的条件是什么']](https://www.phetpalace.com/460.html)
+- [['https://www.sdxxy.cn/20250508-440.html', '肇庆第三附属医院_肇庆三代私立供卵要求成功率和费用']](https://www.sdxxy.cn/20250508-440.html)
+- [['https://www.zrbbavaq.cn/27752445659151.html', '代怀成功率最高&正规便宜包代怀生,琼海市中医院做一代试管婴儿助孕要准备多少钱']](https://www.zrbbavaq.cn/27752445659151.html)
+- [['https://www.chengyanghg.cn/323.html', '供卵医院生殖中心助孕技术解析与代怀服务指南']](https://www.chengyanghg.cn/323.html)
+- [['https://www.esc45.com/135.html', '2026沈阳三代试管选性别医院排名，附沈阳试管婴儿费用参考']](https://www.esc45.com/135.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
