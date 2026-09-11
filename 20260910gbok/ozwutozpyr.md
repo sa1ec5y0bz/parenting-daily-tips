@@ -51,13 +51,19 @@
 
 ## 推荐站点
 
-- [三代试管生化两次有影响吗？原因分析与应对建议全解读](https://www.wuzhenzhi.cn/148.html)
-- [第三代试管婴儿技术怎么选医院？避开排名榜误区的实用指南](https://www.wuzhenzhi.cn/149.html)
-- [思则凯多少钱一支——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/15.html)
-- [柳州妇幼第三代试管单胎多少钱？费用构成与影响因素详解](https://www.wuzhenzhi.cn/150.html)
-- [试管不成功查免疫要多少钱呀一次——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/16.html)
-- [北三医院试管婴儿费用大概多少钱一次啊——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/17.html)
-- [北医三院试管成功案例分析报告怎么写——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/18.html)
-- [潍坊人民医院试管婴儿成功率怎么样啊——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/19.html)
+- [['https://www.cecigou.cn/2020daiyunshengzi/20250929/14956.html', '吃补佳乐子宫内膜会增厚吗，有什么副作用？']](https://www.cecigou.cn/2020daiyunshengzi/20250929/14956.html)
+- [['https://www.sdxxy.cn/20260829-462.html', '【2026最新】济南医大二院生殖中心怎么样？资质、就诊与挂号指南']](https://www.sdxxy.cn/20260829-462.html)
+- [['https://www.anyhdlyb.cn/2653620045551.html', '河南生殖中心比较好的三甲医院名单，附全流程详情,供卵代怀包儿子']](https://www.anyhdlyb.cn/2653620045551.html)
+- [['https://www.phetpalace.com/506.html', '男性弱精少精怎么调理']](https://www.phetpalace.com/506.html)
+- [['https://www.dygsdyw.com/127450796597.html', '妊娠HCG值对照表参考，怀孕值正常值是多少']](https://www.dygsdyw.com/127450796597.html)
+- [['https://www.cd-hssf.com/107253129102.html', '山东生殖科排名前十的医院排名已更新']](https://www.cd-hssf.com/107253129102.html)
+- [['https://www.hg00fj88.com/2150.html', '高龄女性促排要注意什么']](https://www.hg00fj88.com/2150.html)
+- [['https://www.dyokx.com/daihuaibaoshengzi/475.html', '试管婴儿取卵手术后疼吗']](https://www.dyokx.com/daihuaibaoshengzi/475.html)
+- [['https://www.cxit.com.cn/daiyunbaobao/14203.html', '云南做试管婴儿要花多少钱,云南第三代试管婴儿医院做三代试管婴儿要多少钱']](https://www.cxit.com.cn/daiyunbaobao/14203.html)
+- [['https://www.hghbjm.com/89.html', '南昌做试管婴儿流程需要多久？']](https://www.hghbjm.com/89.html)
+- [['https://www.fmngst.com/1827237654261.html', '合肥试管供卵流程, 合肥安医大一附院精子库自精保存怎么收费？']](https://www.fmngst.com/1827237654261.html)
+- [['https://www.luruihang.com/2138.html', '代孕套餐优惠：试管移植后便秘，这样做能缓解']](https://www.luruihang.com/2138.html)
+- [['https://www.xmxinyhwzhs.cn/17842894150629.html', '太不可思议😯女生开始多囊一眼看穿，巨显丑,国内供卵的流程&代孕中心那里比较好']](https://www.xmxinyhwzhs.cn/17842894150629.html)
+- [['https://www.cmanrxrr.cn/1783654850023.html', None]](https://www.cmanrxrr.cn/1783654850023.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
